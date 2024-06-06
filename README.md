@@ -6,5 +6,9 @@
 ![image](https://github.com/PriihBarbosa/Inform-tica/assets/162646744/b58c53d9-ebb5-423d-b0a7-74ee200aa2b8)
 ![image](https://github.com/PriihBarbosa/Inform-tica/assets/162646744/b80997c5-6cac-4757-bf4d-9cc8672cc2f2)
 ![image](https://github.com/PriihBarbosa/Inform-tica/assets/162646744/7081dad5-391a-4114-97d4-96e2f2c7e964)
+![image](https://github.com/PriihBarbosa/Inform-tica/assets/162646744/7cc637f8-8b0c-4cfa-96a8-4289b2d4480d)
+![image](https://github.com/PriihBarbosa/Inform-tica/assets/162646744/c4d81feb-c996-4917-90a5-0ac50a9589f0)
+![image](https://github.com/PriihBarbosa/Inform-tica/assets/162646744/a73c3883-f055-4fe2-97d1-b70413f3ff8e)
+![image](https://github.com/PriihBarbosa/Inform-tica/assets/162646744/c1285c51-5d79-4e85-b8b2-4c7c051c2c29)
 
 
